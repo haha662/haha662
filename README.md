@@ -10,3 +10,5 @@
 haha662/haha662 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->创建日是7月4日
+2026年5月20日，吴安冉正式进入我的世界！
+2026年6月23日，湖北宣恩难忘之夜。
